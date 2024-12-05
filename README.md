@@ -1,4 +1,5 @@
-# *. 𝑂𝑓𝑙𝑖𝑛𝑒 .💤*
+# $${\color{#CAFFF9} 𝑂𝑓𝑙𝑖𝑛𝑒 ° 💤 }$$ $${\color{#00FFE5} ` T21-2Y1 - }$$ $${\color{#0033FF}DCMS . . .}$$
+
 ![tumblr_a96090ef04382e6f716ccb59ae85eb74_01fb5203_640](https://github.com/user-attachments/assets/cdab2a72-c1ec-4b8d-9551-d8df555fc967)
 
 . ![tumblr_4a547c7793a3b7805914772ca0fbb5d4_bdc92d6f_400](https://github.com/user-attachments/assets/8aaba9ad-de9a-448a-a74c-c99d8cb6b678) . 
